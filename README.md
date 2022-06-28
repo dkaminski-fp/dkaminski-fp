@@ -7,7 +7,7 @@ If you wish to find out more, click here:
 
 
 
-I am an experienced software professional, delivering high quality operational software systems and processes effectively and effciently.
+I am an experienced software professional, delivering high quality operational software systems and processes effectively and efficiently.
 Data-driven and goal-oriented, building quality products and processes.
 I strive in a collaborative and a learning culture, with the focus on teamwork, people and their career development.
 
